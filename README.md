@@ -1,4 +1,4 @@
-https://chatgpt.com/s/m_6ade2e5e31808191a05c6689efa88ab1
+<a href="https://ibb.co.com/JwTjsKhY"><img src="https://i.ibb.co.com/ksT2SxdL/Modern-Word-Press-Developer-Portfolio-Banner.png" alt="Modern-Word-Press-Developer-Portfolio-Banner" border="0"></a>
 <h3 align="center">Professional Web Designer, Developer & WordPress Expert</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=devataur65&label=Profile%20views&color=0e75b6&style=flat" alt="devataur65" /> </p>
